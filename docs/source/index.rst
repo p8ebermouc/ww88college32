@@ -67,7 +67,6 @@ https://wakelet.com/@ten41401
 https://forum.acronis.com/it/user/729629
 https://dreevoo.com/profile_info.php?pid=692411
 https://hashnode.com/@ww88college
-https://anyflip.com/center/flips/book.php?cid=5179474#
 https://www.instapaper.com/p/15018380
 https://s.id/ww88college
 https://writexo.com/share/207te4xu
@@ -216,7 +215,6 @@ https://lifeinsys.com/user/ww88college
 http://80.82.64.206/user/ww88college
 https://opentutorials.org/profile/183830
 https://www.utherverse.com/net/profile/view_profile.aspx?MemberID=105001405
-
 https://forums.auran.com/members/ww88college.1257045/
 https://www.ohay.tv/profile/ww88college
 https://www.hivizsights.com/forums/users/ww88college/
